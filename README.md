@@ -2,7 +2,7 @@
 
 Big Mumbai is one of the best colour prediction apps. In the first place, you have to get registered with the Big Mumbai website, and as soon as that, the Big Mumbai website will start providing you with a lot of bonuses.
 
-[![bigmumbai,mobi](https://github.com/user-attachments/assets/ebd47848-e678-45ef-8ce6-546494ec3136)](https://google.com/)
+[![bigmumbai,mobi](https://github.com/user-attachments/assets/ebd47848-e678-45ef-8ce6-546494ec3136)](https://google.com/](https://www.bigmumbai.mobi/)
 
 These bonuses include the Wingo bonus, Aviator bonus, Winning Streak bonus, Monthly Promotion bonus, Loss bonus, Register bonus, and many more.
 
