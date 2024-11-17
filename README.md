@@ -1,16 +1,18 @@
-## Hi there 👋
+## [Big mumbai app:](https://bigmumbai.life/#/register?invitationCode=382162066830) [Play Now](https://bigmumbai.life/#/register?invitationCode=382162066830)
 
-<!--
-**big-mumbai/big-mumbai** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Big Mumbai is one of the best colour prediction apps. In the first place, you have to get registered with the Big Mumbai website, and as soon as that, the Big Mumbai website will start providing you with a lot of bonuses.
 
-Here are some ideas to get you started:
+[![bigmumbai,mobi](https://github.com/user-attachments/assets/ebd47848-e678-45ef-8ce6-546494ec3136)](https://google.com/)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+These bonuses include the Wingo bonus, Aviator bonus, Winning Streak bonus, Monthly Promotion bonus, Loss bonus, Register bonus, and many more.
+
+GIFT CODE(Updates Every Day)
+
+
+App Name	Big Mumbai App
+Big Mumbai Invite Code	382162066830
+Register Bonus	Up To ₹10
+Invite Bonus	Per Refer ₹30
+APK Size	5.7 MB
+
+
